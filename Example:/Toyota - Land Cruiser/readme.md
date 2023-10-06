@@ -17,3 +17,8 @@ JDMbuysell
 Car From Japan
 Yota Imports
 ```
+
+sch: https://www.google.com/search?q=diesel+land+cruiser+united+states
+
+# Group:
+https://www.facebook.com/ToyotaLandCruiserUSA/
